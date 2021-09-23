@@ -5,6 +5,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
       https://www.linkedin.com/in/jason-rosado-a8308821a/ Best way is direct messaging me on my LinkedIn
-      jrosado@gmail.com Alteratively you can email me
+      jrosadox@gmail.com Alteratively you can email me
 
 ✨ special ✨
