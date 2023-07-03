@@ -7,4 +7,3 @@
       https://www.linkedin.com/in/jason-rosado-a8308821a/ Best way is direct messaging me on my LinkedIn
       jrosadox@gmail.com Alteratively you can email me
 
-✨ special ✨
